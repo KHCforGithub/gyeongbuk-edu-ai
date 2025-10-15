@@ -1,0 +1,1 @@
+# gyeongbuk-edu-ai
